@@ -14,4 +14,4 @@
 [경일대학교](www.kiu.ac.kr)
 
 
-![짱구](./images/![KakaoTalk_20220320_002545698_10 (1))
+![짱구](./images/KakaoTalk_20220320_002545698_08.jpg)
